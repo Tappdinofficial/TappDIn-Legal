@@ -1,0 +1,1 @@
+By using TappDIn, you agree to complete tasks honestly, make and receive payments through approved methods, and maintain respectful communication. We reserve the right to suspend accounts that violate these terms.
